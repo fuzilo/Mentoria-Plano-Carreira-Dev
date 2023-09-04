@@ -23,3 +23,6 @@ Capítulo 3 - A Iniciação: A fase da iniciação é crucial na jornada da hero
 Tudo é processo, é uma jornada. São 12 jornadas no total (seja na versão do heroi, quanto na versão da heroína, este livro é bacana porque além de ser voltado para mulheres, é para mulheres na carreira e em tecnologia, é um presente isso daqui rs). Então os meninos podem adaptar pra eles também, se se identificarem, porque como é da mesma área, de repente fica até melhor que a outra versão para eles também.
 
 Então nos 4 domingos, falarei de 3 jornadas totalizando as 12 no final dos 4 domingos.
+
+Link com resumo e print do primeiro dia 02/09/2023
+https://versed-saguaro-b3b.notion.site/Mentoria-de-Carreira-com-Simone-Pinheiro-fed11f573950450fa4c63eae68313214
